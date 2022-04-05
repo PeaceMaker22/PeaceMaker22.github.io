@@ -1,6 +1,6 @@
 ## Anti-ruscism manifest
 
-https://secure.avaaz.org/community_petitions/en/world_leaders_governments_activists_and_ordinary_p_stop_ruscism/
+[Avaaz petition](https://secure.avaaz.org/community_petitions/en/world_leaders_governments_activists_and_ordinary_p_stop_ruscism/)
 
 ### EN
 
