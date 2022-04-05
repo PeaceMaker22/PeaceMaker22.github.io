@@ -1,5 +1,7 @@
 ## Anti-ruscism manifest
 
+https://secure.avaaz.org/community_petitions/en/world_leaders_governments_activists_and_ordinary_p_stop_ruscism/
+
 ### EN
 
 Ruscism is the state ideology of modern russia, which preaches the ideas of the so-called russian world and the superiority of russians over other people.  Ruscism, hiding behind the fight against fascism and Nazism, is in fact itself modern russian fascism.  The ruscist government unleashes bloody wars, engages in terrorism, blackmail and genocide.  The world must stop ruscism before it destroys us all.  To do this, world leaders, governments, activists and ordinary people must follow the following principles:
