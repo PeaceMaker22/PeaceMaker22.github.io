@@ -1,7 +1,6 @@
 ## Anti-ruscism manifest
 
 [Change.org petition](https://www.change.org/p/anti-ruscism-manifest?recruiter=1260221290&recruited_by_id=8fccd920-b5ce-11ec-ae4e-6bc873a16c56&utm_source=share_petition&utm_medium=copylink&utm_campaign=petition_dashboard)
-[Avaaz petition](https://secure.avaaz.org/community_petitions/en/world_leaders_governments_activists_and_ordinary_p_stop_ruscism/)
 
 ### EN
 
